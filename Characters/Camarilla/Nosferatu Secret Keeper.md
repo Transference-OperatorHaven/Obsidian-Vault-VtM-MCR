@@ -1,0 +1,1 @@
+The sire to the [[Nosferatu Primogen]] and a vital part of the [[Camarilla]] court. He keeps written and mental notes of all slights, rumours, debts and unpaid favours that his boiled fingers can grasp. A close confidant of the [[Seneschal]]. He is a quintessential [[Nosferatu]] and lives in a cozied haven in the underground of Manchester.

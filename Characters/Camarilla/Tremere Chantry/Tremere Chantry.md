@@ -1,0 +1,1 @@
+[[Camarilla]]-aligned [[Tremere]] communal haven, education facility and research lab. [[Seneschal]] is the regent who tries to maintain what she can of the local pyramid alongside her [[Tremere Magister]].

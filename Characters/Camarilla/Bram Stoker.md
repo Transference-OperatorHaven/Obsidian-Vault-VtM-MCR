@@ -1,0 +1,1 @@
+A [[Camarilla]]-aligned [[Toreador]] who, after his infamous masquerade-breaching book "Dracula", returned to London and was embraced into the Toreador bloodline at 65.

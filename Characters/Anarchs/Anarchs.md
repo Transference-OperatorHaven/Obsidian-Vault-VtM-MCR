@@ -2,6 +2,7 @@ The more vampirically liberal opposition to the [[Camarilla]]. They don't believ
 
 Anarch Clans:
 [[Brujah]]
+[[Gangrel]]
 [[The Ministry]]
 [[Malkavian]]
 [[Ravnos]]

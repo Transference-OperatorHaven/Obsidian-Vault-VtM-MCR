@@ -1,5 +1,5 @@
 [[Brujah]] - [[Anarchs]] / [[Camarilla]]
-[[Gangrel]] - [[Camarilla]] / [[Sabbat]]
+[[Gangrel]] - [[Anarchs]] / [[Camarilla]] / [[Sabbat]]
 [[Hecata]] - [[Camarilla]]
 [[Lasombra]] - [[Camarilla]] / [[Sabbat]]
 [[Malkavian]] - [[Anarchs]] / [[Camarilla]]

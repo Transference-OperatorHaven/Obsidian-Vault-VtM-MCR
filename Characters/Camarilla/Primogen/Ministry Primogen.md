@@ -1,1 +1,1 @@
-[[Primogen]] for the [[The Ministry]] in the [[Camarilla]]. Owns the [[Elysium]]. 
+[[Primogen]] for the [[The Ministry]] in the [[Camarilla]]. Owns the [[Ark Manchester (Elysium)]]. 

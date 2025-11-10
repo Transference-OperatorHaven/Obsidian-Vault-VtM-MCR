@@ -1,0 +1,1 @@
+[[Tremere]] who are tutored by the [[Tremere Magister]], with the chance of studying under the [[Seneschal]], in the [[Tremere Chantry]].

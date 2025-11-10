@@ -1,0 +1,1 @@
+[[Seneschal]]'s right hand in keeping the [[Tremere Chantry]] maintained and tutoring the lower ranked kindred.
