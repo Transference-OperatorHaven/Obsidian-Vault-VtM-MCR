@@ -1,6 +1,6 @@
-Representatives of each of the [[Clans]] for the [[Camarilla]] court in the given princedom. 
+Representatives of each of the [[Clans]] for the [[Camarilla]] court in the given princedom.
 
-In Manchester the Clans in the Camarilla court are:
+In Manchester the Primogen Council in the Camarilla court are:
 
 [[William McGregor]]
 [[Gangrel Primogen]]
@@ -12,4 +12,3 @@ In Manchester the Clans in the Camarilla court are:
 [[Toreador Primogen]]
 [[Seneschal]]
 [[Ventrue Primogen]]
-

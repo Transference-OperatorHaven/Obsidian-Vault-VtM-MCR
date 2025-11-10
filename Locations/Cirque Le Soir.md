@@ -1,0 +1,1 @@
+A joint ventrue between the [[Toreador Primogen]] and the [[Ventrue Primogen]] as a business ventrue and art expressionism. Mainly resided by the Toreador Primogen. Acts as a Blood Doll service for the wealthy kindred.

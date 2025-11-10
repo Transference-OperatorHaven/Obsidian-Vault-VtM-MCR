@@ -1,0 +1,1 @@
+The rocker [[Toreador]], they own [[Satan's Hollow]] which is frequented by [[Anarchs]].
