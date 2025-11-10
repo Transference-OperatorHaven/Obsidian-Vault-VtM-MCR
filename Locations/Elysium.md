@@ -1,0 +1,1 @@
+The meeting point of the [[Camarilla]] where passivity is not only encouraged but enforced by the [[Sheriff]]. Camarilla will meet here to discuss  

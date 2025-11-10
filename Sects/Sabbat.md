@@ -1,0 +1,1 @@
+The Sword of Caine. They seek to liberate kindred of the oppression of humans and establish global vampiric rule. This means flagrantly spitting in the [[Camarilla]]'s face over the masquerade. They often draw the ire of the [[Second Inquisition]] due to their brazen undead nature.
