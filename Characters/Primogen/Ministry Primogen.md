@@ -1,0 +1,1 @@
+[[Primogen]] for the [[The Ministry]] in the [[Camarilla]]

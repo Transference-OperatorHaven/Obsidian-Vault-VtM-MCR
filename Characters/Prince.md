@@ -1,1 +1,1 @@
-The leader of the local [[Camarilla]], they head the vampire populace in Manchester regardless of the lower kindred's thoughts on their rule. 
+The leader of the local [[Camarilla]], they head the vampire populace in Manchester regardless of the lower kindred's thoughts on their rule. The prince of Manchester is a [[Malkavian]]

@@ -1,0 +1,16 @@
+[[Brujah]] - [[Anarchs]] / [[Camarilla]]
+[[Gangrel]] - [[Camarilla]] / [[Sabbat]]
+[[Hecata]] - [[Camarilla]]
+[[Lasombra]] - [[Camarilla]] / [[Sabbat]]
+[[Malkavian]] - [[Anarchs]] / [[Camarilla]]
+[[The Ministry]] - [[Anarchs]] / [[Camarilla]]
+[[Nosferatu]] - [[Camarilla]]
+[[Ravnos]] - [[Anarchs]] / [[Autarkis]]
+[[Toreador]] - [[Anarchs]] / [[Camarilla]] /[[Sabbat]]
+[[Tremere]] - [[Camarilla]]
+[[Tzimisce]] - [[Anarchs]] / [[Sabbat]]
+[[Ventrue]] - [[Anarchs]] / [[Camarilla]]
+
+Clanless Bloodlines
+[[Caitiff]] - [[Anarchs]] / [[Autarkis]]
+[[Thin-Blood]] - [[Anarchs]]

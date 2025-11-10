@@ -1,0 +1,1 @@
+The guiding figure in the [[Anarchs]] movement of Manchester. Emily Davison took the position in the 70s. She helped Anarchs escape London when it fell in 2012. She is a [[Brujah]]

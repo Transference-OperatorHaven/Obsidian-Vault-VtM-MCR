@@ -1,1 +1,1 @@
-The more vampirically liberal opposition to the [[Camarilla]]. They don't believe in the rule of the [[Prince]]. The [[Baron]] helps maintain the anarch licks but they believe in common sense over hard enforced laws.
+The more vampirically liberal opposition to the [[Camarilla]]. They don't believe in the rule of the [[Prince]]. The [[Baron Emily Davison]] helps maintain the anarch licks but they believe in common sense over hard enforced laws.

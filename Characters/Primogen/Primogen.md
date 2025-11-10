@@ -2,13 +2,13 @@ Representatives of each of the [[Clans]] for the [[Camarilla]] court in the give
 
 In Manchester the Clans in the Camarilla court are:
 
-[[Brujah]]
-[[Gangrel]]
-[[Hecata]]
-[[Lasombra]]
-[[Malkavian]]
-[[The Ministry]]
-[[Nosferatu]]
-[[Tremere]]
-[[Ventrue]]
+[[William McGregor]]
+[[Gangrel Primogen]]
+[[Hecata Primogen]]
+[[Lasombra Primogen]]
+[[Malkavian Primogen]]
+[[Ministry Primogen]]
+[[Nosferatu Primogen]]
+[[Seneschal]]
+[[Ventrue Primogen]]
 

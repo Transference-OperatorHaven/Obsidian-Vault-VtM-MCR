@@ -1,1 +1,1 @@
-The meeting point of the [[Camarilla]] where passivity is not only encouraged but enforced by the [[Sheriff]]. Camarilla will meet here to discuss  
+The meeting point of the [[Camarilla]] where a non-aggression pact binds the place into conversation. Camarilla will meet here to discuss various situations as the need arises. It is usually under the ownership of a [[Primogen]].

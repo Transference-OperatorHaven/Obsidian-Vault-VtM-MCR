@@ -1,1 +1,1 @@
-An enforcer for the [[Prince]]. They enforce both [[Camarilla]] Law and the [[Prince]]'s praxis.
+An enforcer for the [[Prince]]. They enforce both [[Camarilla]] Law and the [[Prince]]'s praxis. The current sheriff is a [[Lasombra]].
