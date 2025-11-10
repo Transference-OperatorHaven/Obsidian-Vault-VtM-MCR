@@ -1,1 +1,1 @@
-[[Malkavian]] [[Primogen]]. Childe of the [[Prince]].
+[[Malkavian]] [[Primogen]]. Childe of the [[Camarilla]]'s [[Prince]].

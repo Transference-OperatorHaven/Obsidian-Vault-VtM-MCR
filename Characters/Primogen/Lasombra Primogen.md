@@ -1,1 +1,1 @@
-[[Primogen]] for the [[Camarilla]] [[Lasombra]]
+[[Primogen]] for the [[Camarilla]] [[Lasombra]]. 

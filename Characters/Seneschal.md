@@ -1,1 +1,1 @@
-The [[Prince]]'s right-hand. They assist the prince in politics and will act in their stead should they be predisposed in any form. The Seneschal of Manchester is a [[Tremere]] and also acts as the [[Primogen]] for the Pyramid in MCR.
+The [[Prince]]'s right-hand. They assist the prince in politics and will act in their stead should they be predisposed in any form. The Seneschal of Manchester is a [[Camarilla]]-aligned [[Tremere]] and also acts as the [[Primogen]] for the Pyramid in MCR.

@@ -1,1 +1,1 @@
-[[Primogen]] for the [[The Ministry]] in the [[Camarilla]]
+[[Primogen]] for the [[The Ministry]] in the [[Camarilla]]. Owns the [[Elysium]]. 

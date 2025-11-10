@@ -9,6 +9,7 @@ In Manchester the Clans in the Camarilla court are:
 [[Malkavian Primogen]]
 [[Ministry Primogen]]
 [[Nosferatu Primogen]]
+[[Toreador Primogen]]
 [[Seneschal]]
 [[Ventrue Primogen]]
 
